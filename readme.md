@@ -34,5 +34,5 @@ From 📍Lisbon with over 5 years of experience mixed with professional and acad
 - I really like doing Crossfit®, help me keeping focus what matter 🎯 
 - Volunteer Web Summit 2019
 <br />
-[LinkedIn]: https://www.linkedin.com/in/gilbertofernandes19
+[LinkedIn]: https://www.linkedin.com/in/gilbertoofer
 [Behance]: https://www.behance.net/gilbertofernandes19
