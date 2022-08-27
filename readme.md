@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 Web Developer👨🏻‍💻 <br />
 
 
-From 📍Lisbon with over 5 years of experience mixed with professional and academic experience of designing, building, and customizing websites/software <br />
+From 📍Lisbon with over 2 years of experience mixed with professional and academic experience of designing, building, and customizing websites/software <br />
 
 📚 I'm currently doing a Web Design React Course at Udemy
 
